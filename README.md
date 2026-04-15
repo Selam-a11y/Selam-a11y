@@ -54,8 +54,9 @@ I enjoy combining theory with practice, turning academic concepts into working m
 
 ## 🤝 Let’s Connect
 
-- 📧 Email: [your email]  
-- 💼 LinkedIn: [your LinkedIn link]  
+- 📧 Email: selamahmud53@gmail.com
+
+
 
 ---
 
